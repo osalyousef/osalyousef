@@ -8,5 +8,4 @@
 - I am a Computer Science student in Qassim University
 - 📫 You can reach me at Twitter DMS or my Email: os.forwork1@gmail.com
 
-- 
-I keep my best projects private and the ones i dont care about public so , if you're interested in seeing my work just hit me up (: 
+- I keep my best projects private and the ones i dont care about public so , if you're interested in seeing my work just hit me up (: 
